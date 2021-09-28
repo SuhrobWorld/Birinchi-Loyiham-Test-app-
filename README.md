@@ -1,0 +1,2 @@
+# Test
+Namuna test loyihasi 
